@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @DynamiteWxa
+- 🌱 I’m currently learning ...
+- 👀 I may not contribute much, but I will do my best
+- 📫 Reach me on dynamitewxa@gmail.com
